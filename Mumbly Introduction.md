@@ -1,0 +1,13 @@
+Introduction
+
+I'm fairly sure that the main reason I didn't make it past my first and only interview for a journalism job was the fact that I couldn't spell the word "accommodation". A spelling test was a cruel trick to play on a grown-up with only eighteen years of full time education. It was a bad blow, which I handled poorly, visiting the verge of madness and becoming an accountant. And oh, what a long, dull trip it's been back to some form of sobriety, solvency, and sanity. 
+
+Why am I doing this? Well, this is what I always really wanted to do - but you know how it is. You start off so well, with the best of intentions on a direct course for fame riches and world domination and then somehow, if you're not ever so careful or ever so focussed, you keep putting off whatever it was that you really wanted to do because well, there's homework to do, and then there's university, sex and drinking to do and then oh shit you need money quick get a job any job and then oh god I'm an accountant, quick change jobs any job so long as it's not this. And in and amongst there's the quest for love, affection, emotional support and instant dirty sex, linked inexplicably, yet inextricably with far more furniture assembly, hoovering and conversations about astrology than one might legitimately expect. 
+
+That's why it's taken me so long. And that's why I'm going to publicly, right here and now, make a promise to write something here every week. And not just any old rubbish. Something that's as witty, interesting and funny as I can manage, with none of that slipping into dull ranting or showing you pictures of my cat. 
+
+I also promise not to agonise endlessly about the benefits of monogamous cohabitation as against the attractions of sexually omnivorous singularity, though this is going to be harder that you can ever realise. 
+
+But wait! That's not all - you lucky people! Anything else I write - and there are here around me the crumpled and disorganised beginnings of at least half a dozen novels, a couple of films, hastily scribbled half-finished ideas for aphorisms, conceptual stirrings for the slogans to be written around the edges of future pound coins (yet to be translated into Latin) etc. Yes, anything else that I actually manage to get finished, that will go here as well. Unfortunately, there won't be any whizzy graphics on this site because I have all the graphical and visual skills of a really great artist who's just had his head cut off but if anybody wants to volunteer their services, please get in touch (no, I'm not going to pay you, so don't start). 
+
+See you next week.
